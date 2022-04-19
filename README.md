@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🌱 I’m currently learning logic of programming
+- 🌱 I’m currently learning IT
 - 💬 Ask me about music, videogame and anime
-- 📫 How to reach me: instagram: @_carlofeio
+- 📫 How to reach me: instagram: @cadupoesie
 
